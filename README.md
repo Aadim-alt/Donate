@@ -84,7 +84,7 @@ Just keep in mind the whole point is to help people donate, not to make money or
 
 ## 📧 Questions?
 
-If you have questions or want to reach out, you can find my contact info in the website footer. 
+If you have questions or want to reach out, you can find my contact info in the website footer. Or I have my personal website aadim-alt.github.io/web contact me from here.
 
 But again - if you have questions about your actual DONATION, contact the charity directly. I can't help with that since I'm not involved in the donation process at all.
 
